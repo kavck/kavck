@@ -1,3 +1,5 @@
+![image](https://user-images.githubusercontent.com/108144351/180501792-a5bb79ea-4b5d-4573-b348-0fc6038fdcf6.png)
+
 # Hey, I'm Kyle! :wave:
 
 ### Welcome! I'm a full-time UX Designer working in Austin, TX.
