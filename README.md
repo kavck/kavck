@@ -2,7 +2,7 @@
 
 # Hey, I'm Kyle! :wave:
 
-### Welcome! I'm a full-time UX Designer working in Austin, TX.
+### Welcome! I am currently a full time UX designer 🙌
 
 ##### NOW
 - ✨ Working on the OpenSearch Project
